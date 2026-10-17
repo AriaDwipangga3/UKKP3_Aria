@@ -1,1 +1,2 @@
-# UKKP3_Aria
+# dwipanggaa788@gmail.com
+# github.com/AriaDwipangga3
